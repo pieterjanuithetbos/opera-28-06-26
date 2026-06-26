@@ -9,7 +9,7 @@
 Er zijn treinen van Brussel naar Leuven om 18:01, 18:12, 18:16 etc., dus vermoedelijk zal het lukken om rond half zeven terug te zijn in Leuven.
 Voorstellen: 
 1. hhmm pizza bij [Antico](https://www.anticopizza.be/) in de Munstraat, sluit om 22:00
-2. eten van overal ter wereld bij eetcafé [Het Strand](https://hetstrand.xyz/menu/) boven cinema Zed
+2. njam njam eten van overal ter wereld bij eetcafé [Het Strand](https://hetstrand.xyz/menu/) boven cinema Zed
 3. suggesties welkom ...
 
 
